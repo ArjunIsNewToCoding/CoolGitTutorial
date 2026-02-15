@@ -1,1 +1,1 @@
-# CoolGitTutorial
+# me and rodd are the coolest dudes ever
